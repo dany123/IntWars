@@ -34,6 +34,7 @@ Other Important Contributors
 * Elyotna (reddit: ?)
 * Spudgy (reddit: imSpudgy)
 * ProudHeart (reddit: chutch1122)
+* AND MEEEEEE.
 
 
 License
